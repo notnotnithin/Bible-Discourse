@@ -189,7 +189,7 @@ futurists ಅಲ್ಲಿ ಒಂದು ಪಂಗಡ ದಾನಿಯೇಲ 7ನ�
 
 <hr style="border:0; border-top:2px solid #D8D2C8; margin:28px 0;">
 
-<h2 style="text-align: center; color: #176B63; font-size: 36px; font-weight: bold;">ಈ ದೃಷ್ಟಿಕೋನದ ಎರಡು ಆಧಾರ ಸ್ತಂಭಗಳು</h2>
+<h2 style="text-align: center; color: #176B63; font-size: 36px; font-weight: bold;">Futurists ದೃಷ್ಟಿಕೋನದ ಎರಡು ವಚನಗಳು</h2>
 
 ಹಾಗಾದ್ರೆ, ಇದಕ್ಕೆ ಮುಖ್ಯ ಕಾರಣಗಳು ಏನು? ನಾಲ್ಕು ಅಂತ್ಯಕಾಲದ ಸಮಕಾಲೀನ ಪೇಗನ್ (pagan) ರಾಷ್ಟ್ರಗಳ ಬಗ್ಗೆ ಮಾತಾಡೋರು ಯಾವಾಗಲೂ ಮುಖ್ಯವಾಗಿ ಎರಡು ವಚನಗಳನ್ನ ಆಧಾರವಾಗಿ
 ತಗೊಳ್ತಾರೆ. ಮೊದಲನೆಯದು ದಾನಿಯೇಲ 7ನೇ ಅಧ್ಯಾಯ, 12ನೇ ವಚನ. ಎರಡನೆಯದು ದಾನಿಯೇಲ 7ನೇ ಅಧ್ಯಾಯ, 1ನೇ ವಚನ.
