@@ -176,7 +176,6 @@ You will go to-and-fro in terms of your understanding of your scriptures. ಅದ
 
 <hr style="border:0; border-top:2px solid #D8D2C8; margin:28px 0;">
 
-Having said that
 <h2 style="text-align: center; color: #176B63; font-size: 36px; font-weight: bold;">ದಾನಿಯೇಲ 7 ವಚನ 1-8ರ ನಾಲ್ಕು ಮೃಗಗಳ ಎರಡು ಮುಖ್ಯ ವ್ಯಾಖ್ಯಾನಗಳು / ಅರ್ಥವಿವರಣೆ (interpretations)</h2>
 
 <h3 style="text-align: center; color: #7A3E65; font-size: 31px; font-weight: bold;">ಮೊದಲ ವ್ಯಾಖ್ಯಾನ: ನಾಲ್ಕು ಐತಿಹಾಸಿಕ ಸಾಮ್ರಾಜ್ಯಗಳು</h3>
