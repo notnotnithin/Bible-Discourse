@@ -22,7 +22,7 @@ Let me just say I went over an hour. I apologize. We're in the middle of the cor
 
 **1:51 → 2:21**
 
-knew it was written. It's written in what's called a chiastic structure. And you go, what are you talking about? Okay, it's actually really simple, but it's important. In modern times, when, for instance, when I write books, I either will clearly state the point that I want to make at the beginning of the book, and then I develop my case, and then I conclude by restating the point that I want to make. Oftentimes, people will build and then finally state their case. But it's usually at the beginning or the end that the primary point is
+knew it was written. It's written in what's called a chiastic structure. And you go, what are you talking about? Okay, it's actually really simple, but it's important. In modern times, when, for instance, when I write books, I either will clearly state the point that I want to make at the beginning of the book, and then I develop my case, and then I conclude by restating the point that I want to make. Oftentimes, people will build and then finally state their case. But it's usually at the beginning or the end that the primary point is made.
 
 **2:21 → 2:52**
 
@@ -34,11 +34,11 @@ going up the mountain and then coming down the mountain, the points that are mad
 
 **3:21 → 3:33**
 
-you there is a key asm within a chiasm which is a person looking at the nineteen that is a peak on top of the peak it's a wheel with a
+is a chiasm within a chiasm which is to say the verses we are about to look at 9 through 14, that is a peak on top of the peak.
 
 **3:33 → 4:49**
 
-actually look at that in this thing is we will but um it is essentially mountain peak on top of mountain peak and this is the center the focus the culmination of the entire book of Daniel and the verses we're about to look at really is a concise summary an articulation an Old Testament articulation of the gospel of the kingdom in a powerful powerful way and it's also in many ways the culmination in the capstone of Old Testament progressive revelation concerning the coming one the promised one Messiah because this concept of the Messiah is unfolding through scriptures and when you get to Daniel 7 it just brings all these different ideas that were previously articulated by different prophets and it just brings them all together and then what we're gonna look at it just again concisely summarizes this unfolding revelation in an absolutely profound and powerful way and it's easy to miss it's easy to miss if we don't really dial down and pay attention let me say this real quick before we jump in if you really want to dig into Daniel.
+actually we are going to look at that in this study of Daniel. It is essentially a mountain peak on top of mountain peak and this is the center the focus the culmination of the entire book of Daniel and in the verses we're about to look at it really is a concise summary, an articulation, an Old Testament articulation of the gospel of the kingdom in a powerful way and it's also in many ways the culmination in the capstone of Old Testament progressive revelation concerning the coming one, the promised one, the Messiah. Because this concept of the Messiah is unfolding through scriptures and when you get to Daniel 7 it just brings all these different ideas that were previously articulated by different prophets and it just brings them all together and then what we're gonna look at it just again concisely summarizes this unfolding revelation in an absolutely profound and powerful way and it's easy to miss if we don't really dial down and pay attention. Let me say this real quick before we jump in if you really want to dig into Daniel 7
 
 **4:49 → 6:04**
 
