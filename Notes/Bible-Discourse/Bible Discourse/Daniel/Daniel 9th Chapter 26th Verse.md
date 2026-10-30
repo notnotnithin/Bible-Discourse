@@ -2,7 +2,7 @@
 
   
 
-<h1 style="text-align: center; color: #153E75; font-size: 44px; font-weight: bold;">ಕ್ರಿಸ್ತವಿರೋಧಿ (Antichrist) ಯುರೋಪಿಯನ್ ಆಗಿರ್ತಾನಾ?</h1>
+<h1 style="text-align: center; color: #153E75; font-size: 44px; font-weight: bold;">ಕ್ರಿಸ್ತವಿರೋಧಿ (Antichrist) European ಆಗಿರ್ತಾನಾ?</h1>
 
   
 
