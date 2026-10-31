@@ -2,8 +2,6 @@
 
 <h1 style="text-align: center; color: #153E75; font-size: 44px; font-weight: bold;">ಕ್ರಿಸ್ತವಿರೋಧಿ (Antichrist) ಯುರೋಪಿಯನ್ ಆಗಿರ್ತಾನಾ?</h1>
 
-<hr style="border:0; border-top:2px solid #D8D2C8; margin:28px 0;">
-
 <h2 style="text-align: center; color: #176B63; font-size: 36px; font-weight: bold;">ಸಾಂಪ್ರದಾಯಿಕ ನಂಬಿಕೆ</h2>
 
 ಹೆಚ್ಚಿನ scholars ಏನು ನಂಬ್ತಾರೆ ಅಂದ್ರೆ, ಈ ಕ್ರಿಸ್ತವಿರೋಧಿ ಒಬ್ಬ European, Revived Rome ಸಾಮ್ರಾಜ್ಯದೊಳಗಿಂದ ಅಧಿಕಾರಕ್ಕೆ ಬರ್ತಾನೆ ಅಂತ. Pre-millenniallists ಗಳಲ್ಲಿ ಇದೇ traditional ಆಗಿ ಬಂದಿರೋ famous ನಂಬಿಕೆ.
