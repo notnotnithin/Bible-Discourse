@@ -1,5 +1,4 @@
-Alright. Welcome, everyone. Welcome back.
-Welcome to the second, uh, study in the Maranatha Global Bible Study. We're looking at Daniel chapters 7 through 12, okay, so from the center of the book of Daniel to the end.
+Welcome to the second, uh, study in the Maranatha Global Bible Study. We are looking at Daniel chapters 7 through 12, okay, so from the center of the book of Daniel to the end.
 Myself and Dalton Thomas are tag-teaming, going back and forth, and working through this. I'm actually doing the first 4 sessions, then Dalton will jump in, and as I said, we'll go back and forth.
 Now, if per chance you're watching this not on the Frontier Lines International app but you're watching it on YouTube, then by all means download the Frontier Lines International app so that you can get all of the classes. Go to any app store and search "Frontier Lines International," download the app, and this is part of the Maranatha Global Bible Study.
 Okay. Now, in the last, uh, study—let me just say, I went over an hour.
@@ -45,22 +44,35 @@ And so that's why it now shifts to this heavenly scene, and it's just an incredi
 "And the Ancient of Days took his seat; his clothing was as white as snow. The hair of his head was as white as wool.
 His throne was flaming with fire, and its wheels—there's the wheels, the wheels of the throne—were all ablaze. A river of fire was flowing, coming out from before him.
 Thousands upon thousands attended him. Ten thousand times ten thousand stood before him.
-The court was seated, and the books were opened." And then here's 11 and 12.
+The court was seated, and the books were opened." 
+
+And then here's 11 and 12.
+
 We discussed this in the last study. "Then I continued to watch, because of the boastful words the horn was speaking.
-I kept looking until the beast was slain, and its body destroyed and thrown into the blazing fire." And then there's this parenthetical statement: "The other beasts had been stripped of their authority, but they were allowed to live for a period of time."
+I kept looking until the beast was slain, and its body destroyed and thrown into the blazing fire." 
+
+And then there's this parenthetical statement: "The other beasts had been stripped of their authority, but they were allowed to live for a period of time."
+
 And then it comes back: "In my vision at night I looked, and there before me was one like a son of man." This is why I say this is the center of the entire book of Daniel, because all biblical prophecy is about Jesus.
-It's not first and foremost about the beast. It's not first and foremost about the Antichrist.
-It's not about that little horn. It's not about the mark of the beast and the tribulation.
-Those things are all important, okay? We—the Bible talks about them in great detail, and we should study them, but we always need to remember the heart and the center of the story is the Messiah, the promised one, the coming one.
-Who is, by the way, it's not just—and this is important to state—it's not just that he is the one that's coming back to fix everything. It's not just the one that he's the one that's coming back to heal everything.
-It's not just that he's the one that's going to take away the pain and the groan and the sighing that we all feel. That's wonderful.
-But it's much more than that. It's the fact that he is, as we'll see, he is the revelation of God himself, our creator.
+
+It's not first and foremost about the beast. It's not first and foremost about the Antichrist. It's not about that little horn. It's not about the mark of the beast and the tribulation.
+
+Those things are all important, okay? 
+
+The Bible talks about them in great detail, and we should study them, but we always need to remember the heart and the center of the story is the Messiah, the promised one, the coming one.
+
+Who is, by the way, it's not just that he is the one that's coming back to fix everything. It's not just the one that he's the one that's coming back to heal everything. It's not just that he's the one that's going to take away the pain and the groan and the sighing that we all feel.
+
+But it's much more than that. 
+
+It's the fact that he is, as we'll see, he is the revelation of God himself, our creator.
 There's nothing else in the universe that we as humans need and yearn for and desire more than to know the one who made us. Because when we can—we talk about a restored earth.
 We talk about a healed earth. That's beautiful.
 That's glorious. But we only love it in as much as it reflects the God who made the earth itself.
 And so Jesus, the Son of Man, the Messiah, whatever title we want to give to him, whatever name we want to give to him, he is the essence of the God of all creation revealed to us. God is a self-revealing one.
-And so that's why, right here at the center of the book, is the self-revelation of God. And so here he is, one like a son of man, and he was coming with the clouds of heaven.
-He's proceeding forward, riding, if you will, the clouds of heaven. "And he approached the Ancient of Days, and he was led into his presence.
+
+And so that's why, right here at the center of the book, is the self-revelation of God. And so here he is, one like a son of man, and he was coming with the clouds of heaven. He's proceeding forward, riding, if you will, the clouds of heaven. "And he approached the Ancient of Days, and he was led into his presence.
+
 He was given authority, glory, and sovereign power, and all nations and peoples of every language worshiped him. His dominion is an everlasting dominion that will not be—that will not pass away, and his kingdom is one that will never be destroyed."
 And so again, I touched on this last week. The purpose of verse 12, when it says the other beasts weren't destroyed instantly, as opposed to the fourth beast, the kingdom of the Antichrist.
 That's destroyed completely, utterly, immediately, and totally. The purpose of that is to juxtapose, is to contrast the nature of the destruction of the fourth kingdom, the Antichrist kingdom, with the kingdom of the Messiah.
@@ -74,6 +86,7 @@ It was ablaze with flames. "Its wheels were a burning fire.
 A river of fire was flowing and coming out before him. Thousands upon thousands were attending him.
 Myriads upon myriads were standing before him. The court sat, and the books were opened."
 So essentially what we have here, we have here is a picture of the throne room, the heavenly throne room. And you go, "What's the heavenly throne room?"
+
 I mean, we can imagine. Because the Bible says, by the way, the Bible says that God dwells at the height of the heavens.
 Which, you know, I—every time I think about this, I have to point it out because it's so cool. Is that in the beginning God created the heavens.
 Okay, he created the heavens and the earth, and then he placed his throne at the height of the heavens. In other words, again, God has chosen to dwell within creation.
@@ -98,6 +111,7 @@ And we need to kind of understand this, because it's, uh, it's crazy, but it's a
 You mean God listens to other divine beings and talks to them when he makes his decisions? That's what the scriptures say.
 "In the midst of the gods"—same word, Elohim—"in the midst of the gods, he holds judgment." So this is, again, the same picture that's being spoken of in Daniel 7.
 It is the divine council, the heavenly throne room. Psalm 89:5-7: "Let the heavens praise your wonders, O Lord, your faithfulness, in the assembly of the holy ones."
+
 There's this assembly, this gathering of these divine beings. Sometimes the scriptures call them principalities.
 The book of Daniel calls them watchers. They're more than just angels.
 These are powerful heavenly beings that God created. And they actually—some of them—some of them actually, um, are rebellious.
@@ -118,12 +132,14 @@ And it's very strange, guys, I know, because it's a lying spirit. Okay, so then 
 And this is the term that's referred to in the book of Daniel. Um, we see it, uh, also in the book of Enoch, references to the watchers.
 And I may be wrong, but I think it may reference this in Ezekiel as well. Ezekiel, of course, uh, within the same time period as the book of Daniel.
 Okay, so where does this all take place? It's in the courtroom, in the throne room of God, in the divine council at the height of the heavens.
+
 Okay, and then it refers to this one called the Ancient of Days. Now, Christians, we would refer to this as God, yes, because it is God.
 We would say this is God the Father. God the Father, the Ancient of Days.
 It's the only time this specific title is used, and it's an evocative title. I mean, you know, the Ancient of Days.
 He is before all things. But here's what's interesting, and this really is fascinating, is that he is described—Daniel sees him, and he is described using anthropomorphic terms, which is to say he has the form of a human.
 The Ancient of Days has the form of a human. He sits down, he's wearing clothing, his vestiges were like, uh, white as—white as the snow, and he has hair on his head.
 He's got a head of woolly hair, right? His hair is like wool.
+
 And so even the Ancient of Days—and that's important to qualify—he's not just this big orb of light type of thing. He is described in anthropomorphic terms, and he's sitting on a throne in the midst of these other holy ones.
 Because not all of the heavenly beings are in the form of a man or in the form of a human. Some of them are anything but that.
 But the Ancient of Days is like us. And again, we are created in his image.
@@ -177,6 +193,7 @@ Okay, it's—you can just feel the solemnity, uh, of the moment. So now we're go
 The horn is the human leader, the dictator of this empire. The beast represents the empire, but yet there's a degree to where they are one and the same.
 I mean, it's as though the beast has a horn, and that's his mouth. And that's—that's how the beast speaks.
 He is the mouthpiece of this empire. And so there's this sort of telescoping, um, uh, dynamic that you see oftentimes in the prophetic scriptures, where you have kingdom, king, but they're almost treated as though they're one and the same.
+
 And Christians, it's funny, theologians, they get in arguments, "Well, are you talking about the Antichrist or the empire?" And I go, "I'm talking about one or the other, or to a degree both, because the scriptures sometimes treat them almost as though they're one and the same."
 And you see it here. "I kept looking because of the boastful words, which the horn was speaking."
 And then I kept looking, and the beast was slain. So it's as though the horn and the beast are treated as if they're one and the same.
@@ -198,8 +215,10 @@ The wicked will be cast into the lake of fire, and there will be weeping and bit
 Now, in terms of what actually happens to the wicked, do they suffer agonizing pain, never-ending, forever and ever, or do they suffer, uh, until the Lord deems it, uh, that they've suffered enough, that they've paid, that they've, um, paid for their sins, and they eventually burn up and disappear? Ultimately, we don't know.
 And the scriptures do use the language of eternity, but the scriptures often do use hyperbole. And we need just to say that this is a terrifying, terrifying reality.
 But the scriptures are clear. Jesus was clear that there is, um, a place of punishment, conscious punishment for the wicked.
+
 And we want to be people that flee from the wrath to come. We want to flee to the refuge.
 We want to flee to the Savior, the Messiah. Amen, right?
+
 Okay. Now we're going to look at verse 13.
 And this is—it's hard to say what is the pinnacle. "I kept looking in the night visions, and behold, with the clouds of heaven, one like a Son of Man was coming."
 One like a Son of Man. "And he came up to the Ancient of Days, and he was presented before him.
